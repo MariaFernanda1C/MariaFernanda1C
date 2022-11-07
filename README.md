@@ -6,4 +6,3 @@
 - atualemnte estou aprendendo computaçâo 
 - futuramente quero cursar medicina veterinária ou cirurgiã plástica
 - estou no 1 ano do ensino médio
-- 
