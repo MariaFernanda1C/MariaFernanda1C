@@ -2,7 +2,7 @@
 
 
 - oi, eu sou a @MariaFernanda1C
-- eu gosto de viajar
+- gosto de viajar
 - atualemnte estou aprendendo computaçâo 
-- futuramente quero cursar medicina veterinária ou cirurgiã plástica
+- moro em Maringá
 - estou no 1 ano do ensino médio
